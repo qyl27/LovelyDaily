@@ -7,7 +7,17 @@
 
 #### Tags：
 
-少女 治愈 百合 轻度色情内容 逆推 校园 都市 现实
+少女 治愈 百合 轻度色情内容 逆推 校园 都市 现实 LGBTQ+
+
+## 社区（Discussion）
+
+欢迎加入社区讨论，你的想法也能影响剧情。
+
+Github：[Issues](https://github.com/AmemiyaSigure/LovelyDaily/issues)
+
+QQ群：[1061187252](https://jq.qq.com/?_wv=1027&k=AQTHMksk)
+
+其他平台暂无。
 
 ## 关于开源许可（License）
 
